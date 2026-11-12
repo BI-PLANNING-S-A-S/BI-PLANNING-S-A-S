@@ -38,4 +38,4 @@ We bring together strategy, people, technology, innovation, and processes to tur
 
 ---
 
-[ biplanning.com.co ](https://biplanning.com.co)
+[biplanning.com.co](https://biplanning.com.co)
